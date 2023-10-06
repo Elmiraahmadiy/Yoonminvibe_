@@ -1,2 +1,2 @@
 # Yoonminvibe_
-Yoongi and jimin in pride month
+Yoongi and jimin of bts💜
